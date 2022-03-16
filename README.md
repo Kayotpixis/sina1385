@@ -1,0 +1,2 @@
+- 👋 Hi, I’m kayot pixis
+- 🌱 And my nickname is Psycho 🤡
